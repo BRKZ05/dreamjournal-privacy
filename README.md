@@ -42,7 +42,7 @@ We may update this Privacy Policy from time to time. You are advised to review t
 
 ## 9. Contact Us
 
-If you have questions about this Privacy Policy, please contact us at support@dreamjournal.ai.
+If you have questions about this Privacy Policy, please contact us at fawad-b@hotmail.com.
 
 ---
 
